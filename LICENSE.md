@@ -1,4 +1,4 @@
-
+Get the ultimate OBS Studio for macOS script with OBS Studio for macOS elite Script: keyframe-animation & lower-thirds. Featuring keyframe-animation and lower-thirds, it's the
 
 
 
